@@ -1,4 +1,4 @@
-Welkom bij KatyBeauty Salon! Ik ben Katy, een gepassioneerde nagel- en wimperstylist met een liefde voor zowel schoonheid als techniek. Oorspronkelijk kom ik uit Iran, maar ik verhuisde een paar jaar geleden naar Nederland om bij mijn partner te zijn. Met een masterdiploma in lichamelijke opvoeding en een artistieke geest begon ik mijn reis in de nagelkunst aan een Europese school in mijn thuisland. Maar ik stopte daar niet—ik heb mijn vaardigheden voortdurend verfijnd met geavanceerde trainingen om mezelf te ontwikkelen van nagelstyliste tot echte nagelmaster.
+Welkom bij [KatyBeauty.nl](katybeauty.nl) Salon! Ik ben Katy, een gepassioneerde nagel- en wimperstylist met een liefde voor zowel schoonheid als techniek. Oorspronkelijk kom ik uit Iran, maar ik verhuisde een paar jaar geleden naar Nederland om bij mijn partner te zijn. Met een masterdiploma in lichamelijke opvoeding en een artistieke geest begon ik mijn reis in de nagelkunst aan een Europese school in mijn thuisland. Maar ik stopte daar niet—ik heb mijn vaardigheden voortdurend verfijnd met geavanceerde trainingen om mezelf te ontwikkelen van nagelstyliste tot echte nagelmaster.
 
  
 
